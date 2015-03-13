@@ -1,2 +1,3 @@
 # LCET
 Ponham aqui cenas de LCET, pessoal!
+Tutorial manda-me fazer cenas...
